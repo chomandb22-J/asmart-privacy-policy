@@ -1,0 +1,1 @@
+# asmart-privacy-policy
